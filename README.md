@@ -1,7 +1,7 @@
-### Hi there, Salut à toi, Привет 👋
+### Hi there, Salut à toi, Привет 👋 🖖
 
 > “The two most powerful warriors are patience and time.”
-― Leo Tolstoy 
+― Leo Tolstoy
 
 - 🔭 I’m currently working on Making Internet Great Again
 - 🌱 I’m always curious about learning something new or changing my mind
