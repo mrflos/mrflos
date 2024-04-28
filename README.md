@@ -7,5 +7,5 @@
 - 🌱 I’m always curious about learning something new or changing my mind
 - 👯 I’m looking to collaborate with cool people that are trying to improve things
 - 💬 Ask me about anything
-- 📫 How to reach me: [twitter](https://twitter.com/mrflos) or [email](mailto:mrflos@lilo.org)
+- 📫 How to reach me: [email](mailto:mrflos@gmail.com)
 - ⚡ Fun fact: will be experienced soon enough after meeting me IRL!
